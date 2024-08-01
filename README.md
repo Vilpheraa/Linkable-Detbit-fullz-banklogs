@@ -1,4 +1,4 @@
-# Linkable-Detbit-fullz-banklogs
+# Linkable-Detbit-fullz-bank-logs
 How to get bank logs | How to get Linkable Debits for Cashapp | Live Cc 
 # Rating Telegram Tools, Bots, and Platforms
 
